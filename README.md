@@ -1,0 +1,2 @@
+# samsuardaisdikardin
+prabowo bodoh
